@@ -1,2 +1,2 @@
 # BRUNSWICK MUSIC FESTIVAL (BMF) SITE REPO
-Sites for the BMF site
+Posted with permission of relevant parties.
